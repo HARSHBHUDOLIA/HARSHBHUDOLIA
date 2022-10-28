@@ -8,7 +8,6 @@
 - 🤔 I’m looking for help with any good recommendation for an open source project.
 - 💬 Ask me about anything appropriate
 - 📫 How to reach me: [Twitter- @AIVANKUM](https://twitter.com/AIVANKUM), [LinkedIn -@Harsh](https://www.linkedin.com/in/harsh-bhudolia/)
-- 😄 Pronouns: He/His
 - ⚡ Fun fact: I like playing Tennis and love to skate.
 
 
